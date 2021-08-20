@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Samuelson420
-- 👀 I’m interested in Unity Game Engine
+- 👋 Hi, I’m Sam, Known as Samuelson
+- 👀 I’m interested in The Unity Game Engine
 - 🌱 I’m currently learning How to be Epic
-- 💞️ I’m looking to collaborate on Nothing
-- 📫 How to reach me .. Oh Wait.. Im 12
+- 💞️ I’m looking to collaborate on Kariomart
+- 📫 How to reach me.... Oh wait in 5'1
