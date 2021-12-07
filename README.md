@@ -2,4 +2,4 @@
 - 👀 I’m interested in The Unity Game Engine
 - 🌱 I’m currently learning How to be Epic
 - 💞️ I’m looking to collaborate on Kariomart
-- 📫 How to reach me.... Oh wait in 5'1
+- 📫 How to reach me.... Oh wait im 5'1
